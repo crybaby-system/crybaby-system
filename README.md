@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @crybaby-system
+- 👀 I’m interested in app translation
+- 🌱 I’m currently learning lua, html, java, python , and many more 
+- 🌆 im learning spanish, japanese spanish, french, and manderin but as you can tell i'm fluent in english
+- 💞️ I’m looking to collaborate on simple html and graphic design aswell as translating jobs!
+- 🍮 i'll generally do anything though, so feel free to reach out! i also do art commisions <3 
+- 📫 reach me at @duneisgae on tik tok and jester candy on tumblr!
